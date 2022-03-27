@@ -1,2 +1,2 @@
-# https://Rlxlfy.github.io/sea
+# https://Rlxfly.github.io/sea
 ga tw
